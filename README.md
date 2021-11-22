@@ -1,1 +1,3 @@
 # IMAGE CSS/HTML PORTRAIT EFFECT GENERATOR
+
+No Freaking Virus =)
