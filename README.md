@@ -1,3 +1,3 @@
 # IMAGE CSS/HTML PORTRAIT EFFECT GENERATOR
 
-No Freaking Virus =)
+This Software is Clear No Virus
